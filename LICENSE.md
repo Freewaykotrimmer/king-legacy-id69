@@ -1,4 +1,4 @@
-#  
+#  best Scripts for king legacy is the best king legacy Script, featuring auto-farm and no clip. Safe and powerful for all your needs.
 
 
 
